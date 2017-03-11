@@ -1,11 +1,12 @@
 # Anna-Sophia Zingarelli-Sweet
 
+
 Coming soon! In the meantime, please visit [my Wordpress site](https://aszingarellisweet.info) or contact me at [aszingarellisweet@gmail.com](mailto:aszingarelli@gmail.com).
 
 ---
 
 Employment:
-* Project Cataloger, 2016-Present, Autry Museum of the American West, Angeles, CA)
+* Project Cataloger, 2016-Present, Autry Museum of the American West (Los Angeles, CA)
 
 ---
 
