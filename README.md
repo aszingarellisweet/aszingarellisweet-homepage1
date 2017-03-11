@@ -5,8 +5,7 @@ Coming soon! In the meantime, please visit [my Wordpress site](https://aszingare
 ---
 
 Employment:
-2016 - Present
-* Project Cataloger, [Autry Museum of the American West](https://theautry.org/research-collections/library-and-archives-autry) (Los Angeles, CA)
+* Project Cataloger, 2016-Present, Autry Museum of the American West, Angeles, CA)
 
 ---
 
@@ -18,4 +17,5 @@ Education:
 ---
 
 [Blog](https://aszingarellisweet.info/blog)
+
 [Twitter](https://twitter.com/aszingarelli)
