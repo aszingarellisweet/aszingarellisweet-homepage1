@@ -12,7 +12,9 @@ Project Cataloger, 2016-Present, Autry Museum of the American West (Los Angeles,
 
 ## Education
 MLIS, 2014, University of Pittsburgh School of Information Sciences (Pittsburgh, PA)
+
 MA, 2011, New York University Institute of Fine Arts (New York, NY)
+
 BA, 2008, Gonzaga University (Spokane, WA)
 
 ---
